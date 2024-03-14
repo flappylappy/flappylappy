@@ -1,2 +1,1 @@
-- Hi, Im @Flappylappy 🌴
-- your typical freelancer bad programmer 
+- please help i am 
